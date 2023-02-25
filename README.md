@@ -1,2 +1,3 @@
 - [Preview](https://oyepriyansh.github.io/image-tear-animation)
-- [Related Meme](https://youtube.com/shorts/LD_lKVquclw)
+- [Related Meme YouTube](https://youtube.com/shorts/LD_lKVquclw)
+- [Related Meme Instagram](https://www.instagram.com/reel/CpDCQtYucr1/?igshid=YmMyMTA2M2Y=)
